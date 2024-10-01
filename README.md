@@ -1,0 +1,1 @@
+# Objeto-Amaldi-oado
